@@ -6,7 +6,7 @@ Using Gmail with screen readers
 Para de faltar vagabundo
 Inbox
 
-Leonardo Mafra <mafra.leonardo.junior2008@gmail.com>
+Carlos Alves <cadulabr@gmail.com>
 Attachments
 Sep 2, 2025, 9:00 AM (6 days ago)
 to me
